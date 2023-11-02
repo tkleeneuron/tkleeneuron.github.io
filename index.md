@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Life is short. Don't just stand there. Do Something.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+0. "Non Ducor, Duco": I am not led, I lead.
+1. I share stuff I like to do: Music, Design, Art, Videography, and Poetry.
+2. Hope you get some inspiration.
